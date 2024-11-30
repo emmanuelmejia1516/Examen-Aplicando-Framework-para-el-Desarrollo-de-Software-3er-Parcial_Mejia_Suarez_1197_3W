@@ -16,5 +16,8 @@
 # Resultado:
 ![image](https://github.com/user-attachments/assets/1f665410-cfed-4067-9a78-a7e529217c39)
 # Ejercicio 5:
-
+![image](https://github.com/user-attachments/assets/4d247e62-8b07-417e-8f22-1535b2974338)
+![image](https://github.com/user-attachments/assets/d11aa0b7-8390-43c5-9489-018ed1458651)
 # Resultado:
+![image](https://github.com/user-attachments/assets/15289ae7-5336-446f-8b09-2bed1cd93814)
+![image](https://github.com/user-attachments/assets/4692abda-00f7-44bb-be65-d405f0f7a259)
